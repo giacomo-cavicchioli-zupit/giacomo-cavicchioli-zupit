@@ -1,1 +1,1 @@
-Senior software developer in [Zupit](https://github.com/zupit-it) 🚀
+Technical Leader in [Zupit](https://github.com/zupit-it) 🚀
